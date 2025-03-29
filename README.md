@@ -8,7 +8,7 @@
 🎯 **Currently Working On:** Data Analytics & Visualization Projects  
 🌱 **Exploring:** Advanced Data Analysis Techniques & Tools  
 💡 **Ask Me About:** Data Cleaning, Visualization & Statistical Analysis  
-📩 **Reach Me At:** [your.email@example.com](mailto:your.email@example.com)  
+📩 **Reach Me At:** [sumaiyakk3@gmail.com"](mailto:sumaiyakk3@gmail.com")  
 ⚡ **Fun Fact:** I love uncovering stories hidden within data and presenting them through compelling visuals!
 
 ---
