@@ -63,4 +63,4 @@
 
 ---
 
-✨ *Let’s connect and collaborate to explore the vast world of data analytics together!*
+✨ *Let’s connect and collaborate to explore the vast world of data analytics together*
